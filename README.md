@@ -1,0 +1,2 @@
+# majiang
+just for fun
